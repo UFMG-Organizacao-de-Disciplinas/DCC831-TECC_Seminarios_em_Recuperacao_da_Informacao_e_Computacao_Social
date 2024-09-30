@@ -1,0 +1,2 @@
+# DCC831-TECC_Seminarios_em_Recuperacao_da_Informacao_e_Computacao_Social
+ 
